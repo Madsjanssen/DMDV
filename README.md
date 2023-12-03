@@ -1,8 +1,1 @@
-Nje jer
-
-Det er helt perfekt
-
-se
-
-sov godt
-
+Der skal faktisk ikke være noget
